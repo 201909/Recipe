@@ -1,0 +1,1 @@
+Take a butterknife and scoop out choco nutrella out of a nutrella jar. Heat up two pieces toast in a toaster. When done, spread the nutrella over the bottom toast and then put the top toast on the toast. THEN EAT IT! YYYYYYUUUUUMMMMM!
